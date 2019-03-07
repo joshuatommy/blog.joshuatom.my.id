@@ -1,0 +1,1 @@
+# blog.joshuatom.my.id
